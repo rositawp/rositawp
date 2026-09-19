@@ -1,4 +1,4 @@
-# Hi, I'm [Rosita Widya Putri] 👋
+# Hi, I'm Rosita Widya Putri 👋
 
 **Researcher in [Socialeconomics, Marketing and Sustainability]**
 
