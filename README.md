@@ -1,6 +1,6 @@
 # Hi, I'm Rosita Widya Putri 👋
 
-**Researcher in Socioeconomics, Marketing and Sustainability**
+**Consumer & Sustainability Researccher in Agri-food Markets**
 
 📍 Malang, Indonesia
 📧 rositaputri761@gmail.com
